@@ -1,1 +1,1 @@
-https://fredrikskogb.github.io/cv/
+https://jeanetteskogberg.github.io/cv/
